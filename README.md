@@ -87,6 +87,7 @@ I made this Logo using Canva but Didn't put it on the Website becuase this is th
 this is Platform Made By Ahmed Farouk
 Passionate about STEAM, Entrepreneurship 
 
-- Leader of Innovations Hack Club
+- Leader of Pharos Hack Club
 - Founder & CEO of Adapt Community
-- Present Contractor @ Hack club under the Management of Christina (the co founder)
+- Contractor @ Hack club under the Management of Christina (the co founder)
+- Manager of "Hack Club On Air" Program
